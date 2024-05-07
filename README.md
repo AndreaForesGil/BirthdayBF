@@ -1,1 +1,1 @@
-# Hi, is the card for my best friendo for his birthday!
+# Hi, is the card for my best friend for his birthday!
